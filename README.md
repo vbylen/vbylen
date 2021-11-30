@@ -1,4 +1,4 @@
-![@10000multiplier, I multiply good things for you.](https://pimp-my-readme.webapp.io/pimp-my-readme/wavy-banner?subtitle=I%20multiply%20good%20things%20for%20you.&title=%4010000multiplier)
+![@10000multiplier, I multiply good things for you.](https://pimp-my-readme.webapp.io/pimp-my-readme/wavy-banner?subtitle=What%20can%20I%20multiply%20for%20you?&title=%4010000multiplier)
 
 <!--
 **10000multiplier/10000multiplier** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
