@@ -6,4 +6,4 @@
 - 🤔 I’m looking for help with everything
 - 💬 Ask me about my vision
 - 📫 How to reach me: jimi@thx.app
-- ⚡ Fun fact: Don't approach me if you identify as an alligator
+- ⚡ Fun fact: Don't approach me if you identify as an alligator. I'll jump on you or call my pride for help
