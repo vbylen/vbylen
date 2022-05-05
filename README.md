@@ -6,4 +6,4 @@
 - 🤔 I’m looking for help with everything
 - 💬 Ask me about my vision
 - 📫 How to reach me: jimi@thx.app
-- ⚡ Fun fact: I relate to lions not just because it's my astrological sign (I don't believe in that).
+- ⚡ Fun fact: Don't approach me if you identify as an alligator
