@@ -6,4 +6,4 @@
 - 🤔 I’m looking for help with everything
 - 💬 Ask me about my vision
 - 📫 How to reach me: jimi@thx.app
-- ⚡ Fun fact: Please don't approach me if you identify as an alligator. I'm from Florida so it's a legit concern.
+- ⚡ Fun fact: Please don't approach me if you identify as an alligator. I live in Florida. It's a legitimate concern.
