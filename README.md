@@ -6,9 +6,9 @@
 Here are some ideas to get you started:
 -->
 
-- 🔭 I’m currently working on Thanks App
-- 🌱 I’m currently learning mobile app development.
-- 👯 I’m looking to collaborate with curious, long-term minded people.
-- 💬 Ask me about your dreams and goals.
+- 🔭 Currently working on Thanks App
+- 🌱 Learning as I go along!
+- 👯 Open to collaborate with curious, long-term minded people.
+- 💬 Are your dreams and goals possibly aligned with mine?
 - 📫 How to reach me: jimi@thx.app.
 
