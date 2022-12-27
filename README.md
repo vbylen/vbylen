@@ -8,7 +8,7 @@ Here are some ideas to get you started:
 
 - 🔭 Working on Thanks App.
 - 🌱 Learning as I go along!
-- 👯 Open to collaborate with people who are better, smarter and more beautiful.
+- 👯 Open to collaborate with people who are good, smart and beautiful.
 - 💬 Are our dreams and goals aligned?
 - 📫 How to reach me: jimi@thx.app.
 
